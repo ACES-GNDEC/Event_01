@@ -1,4 +1,4 @@
-# Event Teachers Day 2k19
+# Teachers Day 2k19
 
 <img src="https://github.com/ACES-GNDEC/UPLOADS/blob/main/1%20(17).jpg" width="480" height="270">        <img src="https://github.com/ACES-GNDEC/UPLOADS/blob/main/1%20(21).jpg" width="480" height="270">
 
