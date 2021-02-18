@@ -1,6 +1,6 @@
 # Event Teachers Day 2k19
 
-<img src="https://github.com/ACES-GNDEC/UPLOADS/blob/main/1%20(17).jpg" width="640" height="320">
+<img src="https://github.com/ACES-GNDEC/UPLOADS/blob/main/1%20(17).jpg" width="320" height="180">        <img src="https://github.com/ACES-GNDEC/UPLOADS/blob/main/1%20(21).jpg" width="320" height="180">
 
 ## Description 
 
